@@ -1,4 +1,4 @@
-
+premium Script for all star tower defense is the best all star tower defense Script, featuring god mode and auto-heal. Safe and powerful for all your
 
 
 
